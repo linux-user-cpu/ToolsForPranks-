@@ -1,2 +1,3 @@
 idk what to put in the readme file so....
 prank your (imaginary) friends
+P.S. also i do know 99% of people know how to make this but who cares
