@@ -1,2 +1,2 @@
-# ToolsForPranks-
-Tools for pranking your (imaginary) friends!
+idk what to put in the readme file so....
+prank your (imaginary) friends
